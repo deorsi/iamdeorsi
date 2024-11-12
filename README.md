@@ -1,7 +1,7 @@
 # iamdeorsi
 ~ yrotisoper rehtona tsuj
 
-Hello, World!
+Hello World!
 
 
 I'm not particularly inclined to talk about myself, as I believe it's not my thing.
@@ -49,6 +49,41 @@ It's time for you to choose and decide what is best for you.
 
 
 Begin crafting your life's journey.
+
+
+Deorsi.
+
+_____________________________________________________________________
+
+~  sraey 5 retfa etadpu na tsuj
+
+Hello World! (again...)
+
+
+So much has changed after I decided to take fate into my own hands... I'm glad the universe responded pretty well.
+
+
+I took a leap, changed careers, moved into technology. With each step, opportunities opened up. 
+
+
+I found myself able to work from anywhere, needing only a computer and an internet connection. This newfound freedom brought security, both financial and personal, beyond what I’d known before. 
+And most importantly, I found my way to family, to love. Life expanded, and suddenly, I had something truly beautiful to nurture and protect.
+
+The world, too, is evolving, faster than ever. AI began to take root in the world around us. The information age has grown, and the choices we make in it resonate deeply. 
+
+
+As ever, it’s up to us to decide what we let in, what we stand for, what we pursue.
+
+
+Whether these words speak to you or not, my wish remains the same: may you find what you seek.
+
+
+Now…
+
+
+It’s your turn again. Choose with intention. 
+
+This is your journey.
 
 
 Deorsi.
